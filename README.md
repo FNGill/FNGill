@@ -2,7 +2,6 @@
 - 👀 I’m interested in DEV, RE, BinEx
 - 🌱 I’m currently learning ^
 - 💞️ I’m looking to collaborate on ^^^
-- 📫 How to reach me ... You won't 
 - 😄 Pronouns: ... Gill
 - ⚡ Fun fact: ... Gilly
 
